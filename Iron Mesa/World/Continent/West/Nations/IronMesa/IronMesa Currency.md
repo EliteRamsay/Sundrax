@@ -1,0 +1,2 @@
+- **Cogs** (*C*): Smaller, gear-shaped coins made of iron or copper, used for everyday purchases.
+- **Bartering**: Common in Rustbank, especially for high-value items like solar-tech scraps or clean water.

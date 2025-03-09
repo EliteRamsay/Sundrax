@@ -1,0 +1,1 @@
+– The Union’s private security force, tasked with keeping their assets safe from outlaws and rival factions.

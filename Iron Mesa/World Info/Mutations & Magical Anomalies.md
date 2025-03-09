@@ -1,0 +1,3 @@
+The Scorching was more than just fire—it was a force that twisted reality itself. Strange, mutated creatures now roam the wastes, some born from the remnants of the old world, others warped by the solar storm’s energy. Elemental anomalies crackle across the land, where the boundaries between fire, magic, and raw energy blur. Some areas experience time distortions, others host impossible landscapes where the laws of nature no longer apply.
+
+Adventurers and opportunists who venture into the Scorched Wastes do so at great risk—but also with the promise of untold riches, lost knowledge, and power beyond imagining.

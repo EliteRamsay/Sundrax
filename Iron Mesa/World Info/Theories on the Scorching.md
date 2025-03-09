@@ -1,0 +1,3 @@
+As the world struggles to rebuild, questions linger. Was the Scorching a natural disaster, or something more sinister? Some whisper of divine wrath, a punishment for the West’s hubris in abandoning magic in favor of technology. Cults and religious zealots preach that the sun itself is a god, purging the unworthy and testing the faithful.
+
+Others suspect foul play, believing that the East—or factions within it—unleashed a weapon to destroy their rival civilization. The timing of the expeditions into the ruined West only fuels the paranoia. Could the East have known the flare was coming? Could they have caused it?
